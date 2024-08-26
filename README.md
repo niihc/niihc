@@ -1,4 +1,4 @@
-## boas vindas ao meu perfil 💙
+### seja bem vindo ao meu perfil  💙
 
 meu nome nicole karolaine 
 
